@@ -1,1 +1,1 @@
-# DUMMY TEXT
+Kussainov Dias|190107071
